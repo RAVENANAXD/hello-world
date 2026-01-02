@@ -9,7 +9,7 @@ On Ponytown im normally Offtab so Whisper if u want to talk : 3
        Im kinda depressed but im mostly okay so dont worry!
       if you find me sad, you can cuddle or comfort if ur good with words
 
-      ![goodieblink (22)](https://github.com/user-attachments/assets/e7673cd5-6895-431a-b1c5-09ce36fefac8)
+![goodieblink (22)](https://github.com/user-attachments/assets/e7673cd5-6895-431a-b1c5-09ce36fefac8)
 
 <img width="99" height="55" alt="imsuicidal_by_superqt-dajsx2f" src="https://github.com/user-attachments/assets/40b830a1-6f0b-415c-8703-2e37e6649fde" />
 
